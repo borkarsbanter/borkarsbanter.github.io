@@ -11,7 +11,7 @@ Another day has gone by, things are as awkward as they can get. Here I balance m
 
 ---
 
-> [!NOTE]
-> This page serves as an archive of snapshots capturing my thoughts/feelings.
+
+> This page serves as an archive of snapshots capturing my thoughts/feelings. \
 > Read with caution 🫠
 
