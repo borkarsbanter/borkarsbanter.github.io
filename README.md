@@ -5,7 +5,7 @@
 ---
 
 *2025-03-21* \
-I did what had to done. I could have lied - my princples protected me. The ball has started to roll. Now we hope for a better tomorrow or atleast, the courage to face it.
+I did what had to be done. I could have lied - my princples protected me. The ball has started to roll. Now we hope for a better tomorrow or atleast, the courage to face it.
 
 ---
 
